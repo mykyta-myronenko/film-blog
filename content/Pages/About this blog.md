@@ -26,6 +26,4 @@ At the moment I'm fixated on film making, and this is a place where I will procr
 
 # Reach Out!
 
-If you want to make something together, or are a fond of building a local community of artists feel free to reach out. <3
-
 ![[Contact]]
